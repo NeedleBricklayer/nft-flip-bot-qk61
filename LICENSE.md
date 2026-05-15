@@ -1,4 +1,4 @@
-# 
+# quantitative nft mint bot | wash-trading-detection + multi-wallet-support is the best nft mint bot, featuring wash-trading-detection and multi-wallet-support. Fast, smart, and
 
 
 
